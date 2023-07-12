@@ -1,5 +1,5 @@
 # Happy Birthday! 
-[ each other over Social Networking Sites like [Instagram](https://www.instragram.com/iamjayantvishwakarmaofficial) and with the same 14 predictable letters. Why not say it with `code`? If you're a developer you already understand it!**
+[ each other over Social Networking Sites like [Instagram](https://www.instagram.com/iamjayantvishwakarmaofficial) and with the same 14 predictable letters. Why not say it with `code`? If you're a developer you already understand it!**
 
 
 
